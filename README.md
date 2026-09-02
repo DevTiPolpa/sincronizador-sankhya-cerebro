@@ -1,0 +1,1 @@
+# sincronizador-sankhya-cerebro
